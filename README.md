@@ -42,7 +42,7 @@ I like exploring how things work under the hood, building practical projects, an
 ### Find me around the internet
 
 - GitHub: [@Amberbops](https://github.com/Amberbops)
-
+- Linkedin: [AmberSaluja](https://www.linkedin.com/in/amber-saluja-36842932a)
 ---
 
 <div align="center">
